@@ -4,6 +4,7 @@
   Working on new real life coding projects
   Explore new coding langauges
   Reading books such as: Nothing can hurt me, Ways of life, etc.
+  
   Joining new Clubs and doing Volnettering activities.
 
 
@@ -12,7 +13,7 @@
   
 
 - 📫 How to reach me:
-  Email: nivedreddy.ayyagari155@gmail.com
+  Email: nayyaga2@assu.edu
   Phone: +1 (848)8016662
 
 
